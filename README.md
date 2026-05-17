@@ -1,4 +1,4 @@
-only made this for an idv themed profile, so click on my main to see other info pg's. i go by mocha or vince, they/them prns, afab, & identify w/ nb, femme presenting, sapphic, & acespec labels.
+i go by mocha or vince, they/them prns, afab, & identify with: nb, femme presenting, sapphic, & acespec labels.
 
 basic dni criteria & usually offtab, so don't take offense if i'm afk.
 
