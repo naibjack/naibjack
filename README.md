@@ -5,7 +5,7 @@ i go by mocha or vince, they/them prns, afab, & identify with: nb, femme present
 basic dni criteria & usually offtab, so don't take offense if i'm afk.
 
 <p align="center">
-yes i'm cringe, but don't group me in with those weird jacknaib shippers from old idv fandom. and i can understand not liking jack bc of the lore, but don't assume something about me over it.
+yes i'm cringe, but don't group me in with those weird jacknaib shippers from old idv fandom. and i can understand not liking jack due to the lore, but don't assume something about me over it.
 
 <p align="center">
 i'm also a multishipper & enjoy other idv pairings ♡ some of them are edluca, adaemil, veramarg, vicdrew, michimary, finjack, & margcleo. i tend to yuri-fy the pairings or characters i like, so if that bothers you then die or something idk
