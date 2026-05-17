@@ -12,3 +12,6 @@ i'm also a multishipper & enjoy other idv pairings ♡ some of them are edluca, 
 
 <p align="center">
 <img src="https://64.media.tumblr.com/11522e71edcbc1233434a8d47915a6dc/b3bc0b5abefc4732-d6/s400x600/c2865fa36f46615387fe7ed13265f03089eb31fa.webp">
+
+<p align="center">
+my merc doll  ≽(•⩊ •マ≼
