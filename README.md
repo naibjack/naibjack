@@ -1,5 +1,5 @@
 <p align="center">
-<img src="(https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExYTFnbm83cncxYThkdWRrbHJvb3A0aTZlaTVmZ3l6Z3N0OTFyZ3NvdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/zQARZEGRTdBFuyUZNa/giphy.gif)">
+<img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExYTFnbm83cncxYThkdWRrbHJvb3A0aTZlaTVmZ3l6Z3N0OTFyZ3NvdyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/zQARZEGRTdBFuyUZNa/giphy.gif">
 
 <p align="center">
 i go by mocha, they/them, & identify with nb & sapphic labels.
