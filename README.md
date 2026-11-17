@@ -11,4 +11,4 @@ i go by mocha, they/them, & identify with nb & sapphic labels.
 basic dni criteria & usually offtab, so don't take offense if i'm afk.
 
 <p align="center">
-feel free 2 int whenever ^_^ i like making new friends.
+feel free to int whenever. i like making new friends.
